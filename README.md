@@ -1,2 +1,2 @@
 # myrepository
-Wow Og my God
+Wow, oh my God
